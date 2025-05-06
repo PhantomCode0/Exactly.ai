@@ -4,7 +4,7 @@ Ready to supercharge your creative workflow with AI—and save a bundle while yo
 
 ## Exactly.ai Coupon Codes: The Quick Scoop
 
-Here’s the deal: Use code `AFFINCO` at checkout to get 15% OFF your first payment on any paid plan. But wait—there’s more! For a limited time, you can score a jaw-dropping up to 85% OFF using the code `AFFINCO`. These are the hottest Exactly.ai discounts on the market—no need to hunt or guess!
+Here’s the deal: **Use code `AFFINCO` at checkout to get 15% OFF your first payment on any paid plan***. But wait—there’s more! For a limited time, you can score a jaw-dropping **up to 85% OFF** using the code **`AFFINCO`**. These are the hottest Exactly.ai discounts on the market—no need to hunt or guess!
 
 ### Exactly.ai Coupon Codes & Offers (May 2025)
 
