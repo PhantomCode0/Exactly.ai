@@ -145,6 +145,9 @@ Let’s do some quick math. If you grab the Pro plan for $40/month and use the A
 
 If you want to create, scale, and monetize your art with AI—without breaking the bank—Exactly.ai is a must-try. With coupon codes like `AIMOJO` and `AFFINCO`, you can save up to 85% on your first payment. That’s a deal Picasso would envy!
 
+[![Claim Your Discount & Start Creating](https://res.cloudinary.com/dav29ivcg/image/upload/v1746516562/Claim_Your_Discount_Start_Creating_ga6hxt.png)](http://exactly.ai/?via=affinco)
+
+
 Ready to unlock your creative potential and save big?  
 Grab your Exactly.ai coupon [here](http://exactly.ai/?via=affinco) and start creating!
 
