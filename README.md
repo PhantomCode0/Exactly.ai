@@ -96,6 +96,8 @@ Let’s do some quick math. If you grab the Pro plan for $40/month and use the A
 4. **Enjoy Instant Savings:**  
    Watch your total drop and start creating!
 
+[![Go to Exactly.ai & Apply Code](https://res.cloudinary.com/dav29ivcg/image/upload/v1746516729/Go_to_Exactly.ai_Apply_Code_yznmt4.png)](http://exactly.ai/?via=affinco)
+
 ### Exactly.ai Key Features (Why Creators Love It)
 
 - **Custom AI Models:** Train the AI in your own style—perfect for artists, illustrators, and designers.
